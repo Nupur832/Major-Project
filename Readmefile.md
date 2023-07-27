@@ -1,0 +1,5 @@
+![Screenshot (7)](https://github.com/Nupur832/Major-Project/assets/111993959/abab0388-1f99-44a3-a079-c628367b5a71)
+![Screenshot (6)](https://github.com/Nupur832/Major-Project/assets/111993959/cca99568-04e3-4ea8-b13d-67705d89e26a)
+![Screenshot (5)](https://github.com/Nupur832/Major-Project/assets/111993959/41088e43-579a-4f2d-96e8-b9254fdfc291)
+![Screenshot (4)](https://github.com/Nupur832/Major-Project/assets/111993959/224fa757-7d9c-4c40-ac59-9c2d4c8c51d0)
+![Screenshot (3)](https://github.com/Nupur832/Major-Project/assets/111993959/5d666706-a5a3-43af-90a5-91bbb63af47a)
